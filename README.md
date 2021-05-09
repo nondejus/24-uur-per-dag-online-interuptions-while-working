@@ -1,1 +1,1 @@
-# 24-uur-per-online-interuptions-while-working
+# 24-uur-per-dag-online-interuptions-while-working
